@@ -1,5 +1,5 @@
 # Preview
-![ezgif-2-0955b3f44e](https://github.com/user-attachments/assets/11f080f6-070e-4a21-b344-fecab9dae7aa)
+![2](https://github.com/user-attachments/assets/726ba181-5466-45eb-8a04-008b15e9c7a9)
 
 ## Stack
 
